@@ -1,5 +1,3 @@
-I'm someone who does anything possible to reach his goals and objectives. A highly motivated individual who can work independently or in group. 
-
 3+ years of Coding and Database experience. 
 Experienced in Case Analysis, Development, Testing and Implementation. 
 Exceptional skills in SQL, NOSQL, Relational & Hierarchical Databases. 
